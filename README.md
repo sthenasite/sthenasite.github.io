@@ -1,1 +1,1 @@
-# sthenata65
+# website ini didedikasikan untuk angkatan 65.
